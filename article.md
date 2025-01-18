@@ -1,22 +1,28 @@
-### Artikel
+**Europa muss zusammenarbeiten**
 
-Bevor Donald Trump am Montag wieder US-Präsident wird, sprechen Friedrich Merz und Angela Merkel über Europa. Sie sagen, dass Europa zusammenarbeiten muss. Merkel spricht beim Neujahrsempfang der CDU in Düsseldorf. Sie sagt, Europa muss seine Interessen vereinen. Merz sagt, Europa muss gut auf die Entscheidungen von Trump reagieren.
+Kurz bevor Donald Trump am Montag US-Präsident wird, sprechen Friedrich Merz von der CDU und Angela Merkel, die frühere Bundeskanzlerin, über Europa. Sie sagen, dass Europa zusammenarbeiten muss. Merkel sagt, dass Europa seine Interessen bündeln soll. Sie spricht beim Neujahrsempfang der CDU in Düsseldorf. Merz sagt, dass Europa eine gemeinsame Antwort auf Trumps Politik braucht.
 
-Merz sagt: "Wenn die europäischen Länder zusammen sind, haben sie Respekt, auch in den USA. Wenn sie getrennt sind, hören die Leute nicht auf uns." Er macht einen wichtigen Aufruf, dass Europa handeln soll. Die Wahl von Trump wird die Zusammenarbeit in Europa schneller machen.
+Merz sagt auch: "Wenn die europäischen Länder united sind, haben sie Respekt in der Welt, auch in den USA. Wenn sie geteilt sind, wird niemand uns ernst nehmen." Er spricht von einem letzten Aufruf zum Handeln. Die Amtseinführung von Trump wird Europa helfen, zusammen zu arbeiten.
 
-Merkel sagt, dass die Partnerschaft mit den USA weiterhin wichtig ist. Sie denkt, dass die Ukraine ohne die Unterstützung der USA und der Nato nicht unabhängig bleibt. Wegen des Krieges von Russland gegen die Ukraine ist eine wichtige Regel in Europa nicht mehr da. Merkel sagt, dass nur mit den USA und der Nato der Krieg beendet werden kann.
+Merz sagt, dass Trump leicht zu verstehen ist. "Er sagt, was er denkt, und er macht, was er sagt." Das hat auch einige Probleme.
 
-Donald Trump wird die Interessen der USA verteidigen, sagt Merkel. Aber er glaubt nicht an gute Zusammenarbeit, bei der alle gewinnen. "Wir können Trump nicht ändern, aber wir können darauf reagieren", sagt sie. Merkel sagt, dass die USA auch einen starken Partner in Europa brauchen. "Europa ist wichtig für unsere Sicherheit", sagt sie.
+**"Europa ist wichtig für unser Leben"**
 
-### Glossary
+Angela Merkel sagt, dass die Partnerschaft mit den USA sehr wichtig ist. Ohne die Unterstützung der USA und der Nato kann die Ukraine nicht unabhängig bleiben. Der Angriff von Russland auf die Ukraine ist ein großes Problem. Merkel sagt, dass der Grundsatz, dass Länder nicht verletzt werden dürfen, nicht mehr gilt. Nur mit den USA und in der Nato kann Europa sicherstellen, dass Putin nicht siegt und die Ukraine bleibt, wie sie ist.
 
-- **Interessen** (interests) - das, was jemand wichtig findet oder möchte. 
-- **vereinen** (to unite) - zusammenbringen, gemeinsam machen.
-- **Respekt** (respect) - andere Menschen achten und wertschätzen.
-- **aufrufen** (to call for) - jemand dazu bringen, etwas zu tun.
-- **uns** (us) - wir, die Gruppe, zu der ich auch gehöre.
-- **Selbstständigkeit** (independence) - die Freiheit, allein zu sein und Entscheidungen zu treffen. 
-- **unverzichtbar** (essential) - sehr wichtig, kann nicht fehlen. 
-- **Partnerschaft** (partnership) - eine Zusammenarbeit zwischen Menschen oder Ländern.
-- **multilateral** (multilateral) - viele verschiedene Länder sind beteiligt.
-- **Sicherheit** (security) - der Schutz vor Gefahren oder Problemen.
+Merkel sagt, dass Trump die Interessen der USA verteidigt, aber er glaubt nicht an eine Zusammenarbeit, wo alle gewinnen. "Wir können Trump nicht ändern, aber wir können darauf reagieren," sagt sie. Sie sagt auch, dass die USA gut beraten wären, wenn sie mit Europa zusammenarbeiten. "Wir sind auch stark," sagt sie. "Europa ist unsere Lebensversicherung."
+
+---
+
+**Glossar**
+
+- **geschlossenenheit** - unity, der Zustand, wenn alle zusammen sind.
+- **interessen** - interests, Dinge, die für jemanden wichtig sind.
+- **eingreifen** - to intervene, aktiv etwas tun in einer Situation.
+- **kalkulierbar** - predictable, wenn man etwas leicht verstehen kann.
+- **herausforderungen** - challenges, schwierige Situationen.
+- **transatlantische** - transatlantic, die Beziehung zwischen Europa und den USA.
+- **unabhängig** - independent, wenn man nicht von anderen abhängig ist.
+- **territoriale** - territorial, die Fläche und Grenzen eines Landes.
+- **multilateral** - multilateral, wenn viele Länder zusammenarbeiten.
+- **verbündeten** - allies, Länder, die zusammenarbeiten.
